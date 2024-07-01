@@ -1,0 +1,2 @@
+# diksa
+HARI NAME INITIATION
